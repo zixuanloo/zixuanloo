@@ -8,6 +8,8 @@
 - 📫 How to reach me: **zixuan.loo@simplr.com.my** | **zixuan2001711@gmail.com**
 
 - ⚡ Fun fact: **meme lover**
+  
+- 👨‍💻 Another GitHub acc: **https://github.com/loozixuan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
